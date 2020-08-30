@@ -6,7 +6,7 @@
 41만 유튜브 구독자를 보유한 유명 여행 커뮤니티 ‘여행에 미치다’가 공식 SNS에 동성 남자 성관계 영상이 올라와서 시끄럽네요. 
 
 어제 6시쯤이었나, 강원도 평창 양떼목장을 소개글에 동성의 성관계 장면이 담긴 영상음란물을 게재되었더라구요. 뭐 사과문도 올려보고 하는데, 그게 어디 되겠나요... 해당 채널 대표라는 조준기라는 사람이 자기가 게시물을 업로드한 당사자라며 대표직을 사임하겠다고 일단락친 상황이에요.
-![http://e2nc.github.io/Travel_thumb.jpg](http://e2nc.github.io/Travel_thumb.jpg)
+![https://e2nc.github.io/Travel_thumb.jpg](https://e2nc.github.io/Travel_thumb.jpg)
 
 > 여행에 미치다 sns 올라온 사과문
 
