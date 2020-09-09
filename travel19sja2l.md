@@ -7,7 +7,7 @@
 
 - - -
 ## 방금 올라온 뉴스
-![](https://e2nc.github.io/travel.PNG)
+![](https://e2nc.github.io/travel.png)
 
 ## 8월 30일 제보글
 41만 유튜브 구독자를 보유한 유명 여행 커뮤니티 ‘여행에 미치다’가 공식 SNS에 동성 남자 성관계 영상이 올라와서 시끄럽네요. 
